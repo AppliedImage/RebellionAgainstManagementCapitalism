@@ -7,7 +7,7 @@
 > I blame management capitalism, which never actually creates anything, it just optimizes, expands and entraps based on existing models & paradigms. It’s stifling and disheartening."  
 > **- @Saikmedi**
 
-America is at risk of dying. We are growing sclerotic and slow. We spend more time avoiding suboptimal action than we spend taking good actions.
+The West is at risk of dying. We are growing sclerotic and slow. We spend more time avoiding suboptimal action than we spend taking good actions.
 
 I want to dream of ways of breaking free of managerialism and once again embracing risk. I want to turn back the clock and become a young society again. We can. This is the era of the electron, of the internet, of AI and breakthroughs in physics and biology and cancer-curing-drugs and every other wonderful tool we now have that would have been inconceivably terrible magic in the past. We don't have to live by the old rules and patterns that dictate the deaths of societies and the ends of eras.
 
